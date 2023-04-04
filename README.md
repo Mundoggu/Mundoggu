@@ -2,7 +2,7 @@
 - 👀 I’m interested in nothing
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me - nikak.
+- 📫 How to reach me - telegram: @mundoggu
 
 
 ![Perro-De-Luna-Moon-Dog---Proof-from-the-Mexican-Masters-suite-by-Rufino-Tamayo](https://user-images.githubusercontent.com/108873976/226143866-75601355-81ca-45cf-a890-328d9e1e5336.jpg)
